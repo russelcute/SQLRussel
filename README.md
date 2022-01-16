@@ -1,2 +1,4 @@
 # SQLRussel
-para po ito sa mga nangongopya plaage hahahhah
+JamesRussel DelosAngeles
+
+para po ito sa mga tamad mag code
